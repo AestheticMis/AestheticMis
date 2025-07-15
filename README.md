@@ -1,4 +1,4 @@
-# 👋🏾 Hi, Emily Lichaba 
+# 👋🏾 Hi,I'm Emily Lichaba 
 
  Junior Web Developer | Front-End Enthusiast | Creative Thinker
 
